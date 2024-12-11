@@ -1,5 +1,10 @@
 # 💫 About Me:
-🔭 I’m currently working on University Projects<br>👯 I’m looking to collaborate on my University Projects<br>🤝 I’m looking for help with Study<br>🌱 I’m currently learning at Assumption University Thailand<br>💬 Ask me about Assumption University Thailand<br>⚡ Fun fact about Thailand is Very hot
+🌟 Currently Diving into: University Projects that spark my creativity and challenge my skills!
+🤝 Collaboration Enthusiast: Eager to team up on exciting university ventures!
+📚 Seeking Study Buddies: Let's tackle those tough subjects together!
+🌱 Learning Journey: Proudly expanding my horizons at Assumption University, Thailand!
+💬 Curious Minds Welcome: Feel free to ask me anything about life at Assumption University!
+☀️ Fun Fact: Thailand's sun shines bright—it's a tropical paradise with a warm embrace!
 
 
 # 💻 Tech Stack:
