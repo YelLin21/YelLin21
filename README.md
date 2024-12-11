@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on University Projects<br>👯 I’m looking to collaborate on my University Projects<br>🤝 I’m looking for help with Study<br>🌱 I’m currently learning at Assumption University Thailand<br>💬 Ask me about Assumption University Thailand<br>⚡ Fun fact about Thailand
+🔭 I’m currently working on University Projects<br>👯 I’m looking to collaborate on my University Projects<br>🤝 I’m looking for help with Study<br>🌱 I’m currently learning at Assumption University Thailand<br>💬 Ask me about Assumption University Thailand<br>⚡ Fun fact about Thailand is Very hot
 
 
 # 💻 Tech Stack:
