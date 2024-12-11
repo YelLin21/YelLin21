@@ -1,9 +1,14 @@
 # 💫 About Me:
 🌟 Currently Diving into: University Projects that spark my creativity and challenge my skills!
+
 🤝 Collaboration Enthusiast: Eager to team up on exciting university ventures!
+
 📚 Seeking Study Buddies: Let's tackle those tough subjects together!
+
 🌱 Learning Journey: Proudly expanding my horizons at Assumption University, Thailand!
+
 💬 Curious Minds Welcome: Feel free to ask me anything about life at Assumption University!
+
 ☀️ Fun Fact: Thailand's sun shines bright—it's a tropical paradise with a warm embrace!
 
 
